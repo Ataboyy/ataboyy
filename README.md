@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Ataboyy](https://github.com/Ataboyy)
 
-- 📫 How to reach me *AtaurRahman03@outlook.com*
+- 📫 How to reach me *mdrahman45879@gmail.com *
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
